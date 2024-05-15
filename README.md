@@ -42,4 +42,4 @@ And then there is the third act, the one when he tries to defeat antagonist. Tha
 
 ![arc 3](https://github.com/davidjansta1/english-for-designers6/assets/165008882/3c2088ae-a025-41ea-b694-2e84b7e78352)
 
-So yeah, I probably said everything essential. Now you can create your own movie.
+And now you can create your own movie.
